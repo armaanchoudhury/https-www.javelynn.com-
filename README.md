@@ -1,0 +1,2 @@
+# https-www.javelynn.com-
+https://www.javelynn.com/    Javelynn deals with great content in terms of user generated stories and guest-posts featuring Technology. If you are a blogger, experienced technical writer or a developer who is looking to showcase your work and/or share your knowledge, you have reached the right place.     We accept articles as Opinions, Tutorials, Reviews, News, Interviews and Analysis – all focused towards Technology. At Javelynn, we take pride in creating a valuable knowledge resource and celebrate sharing. 
